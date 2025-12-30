@@ -1,0 +1,1 @@
+# sevenknights-rebirth-equipment-guide-kr
